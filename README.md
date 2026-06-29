@@ -73,7 +73,7 @@ src/
 
 Anderson Market - Congo Brazzaville
 - 📧 info@andersonmarket.cg
-- 📞 +242 06 123 4567
+- 📞 +242 06 932 44 60
 
 ---
 
